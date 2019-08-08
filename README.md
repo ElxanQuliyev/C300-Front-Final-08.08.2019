@@ -9,6 +9,6 @@ http://travelicious.bold-themes.com/main-demo/about-us/contact-us/
 
 http://travelicious.bold-themes.com/main-demo/blog/
 
-Deadline:18.08.2019 14:30
+Deadline:18.08.2019 10:30
 
 Uğurlar
